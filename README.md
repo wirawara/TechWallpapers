@@ -1,1 +1,1 @@
-These are wallpapers for Phone. 🏔️ 🌊 🌄 📱
+These are wallpapers for SmartPhone. 🏔️ 🌊 🌄 📱
